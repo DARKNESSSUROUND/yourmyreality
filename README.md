@@ -13,7 +13,7 @@ Im also from Kazakhstan .
 dni list:
 12- im not uncomfortable with ppl who is younger than me lIke if ur 9-10 im not gonna friend you.if ur already my friend thats okay to me
 20+ dni too unless your my friend
-Aie,flow,Sivetra,liam heavy dni 
+flow,Sivetra,liam heavy dni 
 
 
 is it love if I set you free?
